@@ -1,4 +1,4 @@
-![Screenshot_20250819_140532](https://github.com/user-attachments/assets/ef90a9e9-e04a-47f5-8ebe-6e235e17cd49)🚀 Just Launched: A Creative & Comfortable News App! 📰✨
+🚀 Just Launched: A Creative & Comfortable News App! 📰✨
 
 Super excited to share my latest project — a modern News App designed not just for functionality, but for a smooth and enjoyable user experience.
 
